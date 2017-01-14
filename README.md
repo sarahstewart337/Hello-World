@@ -4,4 +4,4 @@ I like to do things that usually don't involve homework. but I can make an exept
 loser
 winner
 where are you?
-I c
+I ca
